@@ -15,7 +15,6 @@
 
 - How to reach me **sreeman16111@gmail.com**
 
-- Fun fact **“If I could live anywhere in the world, it would be Canada”**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
